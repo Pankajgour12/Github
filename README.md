@@ -26,7 +26,7 @@
 ## 📫 How to Reach Me
 
 - [LinkedIn](https://linkedin.com/in/pankajlotus404)  
-- [Twitter](https://twitter.com/your-twitter-handle)  
+- [Twitter](https://twitter.com/pnkjLotus_404)  
  
 - Email: pankajgour5000@gmail.com
 
