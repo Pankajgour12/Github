@@ -38,4 +38,3 @@
 
 ---
 
-![PnkjLotu$.404's GitHub stats](https://github-readme-stats.vercel.app/api?username=PnkjLotu404&show_icons=true&theme=radical)
