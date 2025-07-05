@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm PnkjLotu$.404!
+# 👋 Hey there, I'm Pankaj Gour!
 
 > 🚀 Passionate Web Developer | Creative Coder | Tech Enthusiast
 
